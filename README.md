@@ -9,4 +9,4 @@
 - 마인크래프트 서버 운영 경력이 여럿 있어요!
 ---
 ## ✉️ Contact
-Discord: just_ion
+Discord: ixoxn
